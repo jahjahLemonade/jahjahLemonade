@@ -10,7 +10,7 @@
 
 🧠 Psychology fascinates me. Exploring how it impacts our lives and different fields keeps me engaged and curious.
 
-🌟 On a mission to master the world of web development 
+🌟 On a mission to master the world of web development and self-love lol. 
 
 --- 
 ### 🧰  Languages and Tools
